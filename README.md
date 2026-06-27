@@ -1,9 +1,10 @@
 <p align="center"> 
-  <p align="center"><img src="https://komarev.com/ghpvc/?username=solanaceaee&color=blue&plastic&label=⠀ZAI+;⠀"></img></p>
+  <p align="center"><img src="https://komarev.com/ghpvc/?username=solanaceaee&color=blue&plastic&label=⠀SKK+;⠀"></img></p>
  <br>
 
-<img width="430" height="525" alt="2950" src="https://github.com/user-attachments/assets/c1aa97b6-832e-4d77-b8ee-ceeb568ace2a" />
+<img width="736" height="736" alt="3315" src="https://github.com/user-attachments/assets/1d65b7c6-d22e-4b97-957e-7043c9814413" />
+
 
 <p align="center"> 
   <p align="center"
-><img src="https://komarev.com/ghpvc/?username=solanaceaee&color=red&plastic&label=⠀CHUU+;⠀"></img></p>
+
