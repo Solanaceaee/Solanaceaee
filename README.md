@@ -9,7 +9,7 @@
   <p align="center"
 
   AWARENESS !
-  we just wanna say that, this is NOT us, it was stated it our prns.cc that we are uncomfortable with vile words so ofc  we wouldnt say shid like this. this was on our friend ata who we see as a little sister. whoever you are, you r a fucking weirdo. we are being impersonated. (blurring some parts bc i myself is uncomfortable with it genuinely whos loser is this LMAAOF)
+  we just wanna say that, this is NOT us, it was stated in our prns.cc that we are uncomfortable with vile words so ofc  we wouldnt say shid like this. this was on our friend ata who we see as a little sister. whoever you are, you r a fucking weirdo. we are being impersonated. (blurring some parts bc i myself is uncomfortable with it genuinely whos loser is this LMAAOF)
   <img width="1080" height="369" alt="3718" src="https://github.com/user-attachments/assets/81d03554-0e8e-47e9-a98a-abf2d78cd3c6" />
 
 
